@@ -1,1 +1,1 @@
-# kursIT
+# kursIT-Zosia
